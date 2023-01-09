@@ -1,5 +1,5 @@
-# Yana
+# Full name: Yanina Chorna
 
 ## Telegram: yanylka_8
 
-### country: Ukraine
+### Country: Ukraine
